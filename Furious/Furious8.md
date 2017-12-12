@@ -1,4 +1,4 @@
-**FURIOUS8**
+**FAST AND FURIOUS 8**
 
 ![Furious8](https://www.hardingbeacon.com/wp-content/uploads/2017/06/Fate-of-the-Furious.jpg)
 
